@@ -34,7 +34,7 @@ Soft Skills: Communication · Analytical Thinking · Problem-Solving · Collabor
 
 📍 Dr. DY Patil Vidyapeeth, Pune, Maharashtra
 
-🔗 LinkedIn￼
+🔗 LinkedIn￼ www.linkedin.com/in/astha-p-b26544237
 
 💻 GitHub￼
 
