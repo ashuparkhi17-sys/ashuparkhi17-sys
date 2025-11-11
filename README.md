@@ -36,6 +36,6 @@ Soft Skills: Communication · Analytical Thinking · Problem-Solving · Collabor
 
 🔗 LinkedIn￼ www.linkedin.com/in/astha-p-b26544237
 
-💻 GitHub￼
+💻 GitHub￼ (https://github.com/ashuparkhi17-sys)
 
 ❤️ By Astha Parkhi
